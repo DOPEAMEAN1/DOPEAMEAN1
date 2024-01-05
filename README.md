@@ -5,7 +5,7 @@
 - 📫 How to reach me on Twitter: @Dopeamean2022 By Email: JWcgc30@gmail.com On IG: @DopeAMean1
 
 My name is Josephis K. wade and I am a Developer, Content Creator, IT Professional, Musician, Enturapenure, Entertainer, and Crypto-
-currency Enthusiest. My biggest goal to date is ti create the EmPower Blockchain. I've been looking to collabarate with like-minded
+currency Enthusiest. My biggest goal to date is ti create the EmPower1 Blockchain. I've been looking to collabarate with like-minded
 people on the project and I hope to meet some here,
 
 <!---
